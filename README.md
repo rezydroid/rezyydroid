@@ -1,0 +1,2 @@
+# rezyydroid
+latihan rezyydroid mass
